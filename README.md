@@ -1,0 +1,2 @@
+# whitepaper
+Saary Games ltd. 
